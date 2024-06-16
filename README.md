@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tinotenda-Gillian
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Computer Science
-- 📫 How to reach me Instagram: __gillian6__
+- 📫 How to reach me: Email - tinotendagilliandhliwayo@gmail.com
 - 😄 Pronouns: She/Her
 
 
